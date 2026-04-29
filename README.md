@@ -1,2 +1,2 @@
-# -AHAMADI-OUSSENI
-Cv de  AHAMADI OUSSENI 
+# CV
+My Resume
